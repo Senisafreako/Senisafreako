@@ -1,4 +1,6 @@
-## Hi there 👋
+![79d72b87261dfc8e15843339e485443c](https://github.com/user-attachments/assets/aa98fdf6-3501-41ff-8e02-777556e83a13)
+
+
 
 <!--
 **Senisafreako/Senisafreako** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
