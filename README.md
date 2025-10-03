@@ -1,7 +1,7 @@
 
+Joo "HELLO! ^_^"
 
-
-https://github.com/user-attachments/assets/bbca94c1-4aac-4fda-9f97-4fda7a96ba5f
+![7a116e31c36dc2006b76d3420010c955](https://github.com/user-attachments/assets/22d1b123-08c6-4777-a13e-29aaac861c48)
 
 
 
