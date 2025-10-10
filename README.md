@@ -1,7 +1,5 @@
 
-Joo "HELLO! ^_^"
 
-![7a116e31c36dc2006b76d3420010c955](https://github.com/user-attachments/assets/22d1b123-08c6-4777-a13e-29aaac861c48)
 
 
 <img width="475" height="211" alt="Screenshot 2025-10-03 220441" src="https://github.com/user-attachments/assets/b29f044c-d5ea-4fa5-a52b-e681cbcbf90b" />
