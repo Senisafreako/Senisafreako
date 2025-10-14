@@ -5,7 +5,7 @@
 <img width="475" height="211" alt="Screenshot 2025-10-03 220441" src="https://github.com/user-attachments/assets/b29f044c-d5ea-4fa5-a52b-e681cbcbf90b" />
 
 
-<p> Family photo!!  : D</p>
+<p> my lovely lovely friends !  : D</p>
 
 
 
