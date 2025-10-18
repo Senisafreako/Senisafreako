@@ -1,11 +1,9 @@
 
+<img width="601" height="376" alt="Screenshot 2025-10-18 005322" src="https://github.com/user-attachments/assets/77ef130c-1deb-4bd9-9271-156efee65e7e" />
 
 
 
-<img width="475" height="211" alt="Screenshot 2025-10-03 220441" src="https://github.com/user-attachments/assets/b29f044c-d5ea-4fa5-a52b-e681cbcbf90b" />
-
-
-<p> my lovely lovely friends !  : D</p>
+<p> Yo E soul can i piggy back you??</p>
 
 
 
