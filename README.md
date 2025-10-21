@@ -1,4 +1,8 @@
 
+majorly depressed rn, c+h on pt please. dniuf or if you know mee 
+
+
+
 <img width="601" height="376" alt="Screenshot 2025-10-18 005322" src="https://github.com/user-attachments/assets/77ef130c-1deb-4bd9-9271-156efee65e7e" />
 
 
