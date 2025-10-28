@@ -1,5 +1,5 @@
 
- sometimes im dry an not in the mood . c+h on pt please. dniuf or unless you know mee 
+ sometimes im dry and not in the mood . c+h on pt please. dniuf or unless you know mee 
 
 
 
