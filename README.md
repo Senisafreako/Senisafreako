@@ -1,5 +1,5 @@
 
-majorly depressed rn, c+h on pt please. dniuf or unless you know mee 
+ sometimes im dry an not in the mood . c+h on pt please. dniuf or unless you know mee 
 
 
 
