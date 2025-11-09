@@ -1,16 +1,14 @@
 
- sometimes im dry and not in the mood . c+h on pt please. dniuf or unless you know mee 
+ i'am taking a break from ponytown, idk when im coming back online either . 
 
+ for ponytown: Dniuf/don't int if you don't know me,  c+h for friends please ^,^  
 
+ i have major depression , sometimes i take it out on other people, i'am extremely sensitive aswell so bare with me, i don't know 
+ if you're joking or not, so let me know if you are, so i don't take it seriously :") . 
 
-![a7b39a453e31cc90bf52b2d9f1162ddd](https://github.com/user-attachments/assets/3e261d59-7426-4eb4-a0e4-154a8f920d98)
+ Please use ./j or any Tone Indicators when interacting with me aswell T-T  or any of these https://en.wikipedia.org/wiki/Tone_indicator 
 
-
-![6e55f537018b5d66a0586aab6d4b3505](https://github.com/user-attachments/assets/8269a002-978d-4a0b-9c35-2244c5bed163)
-
-
-
-
+ 
 
 
 
