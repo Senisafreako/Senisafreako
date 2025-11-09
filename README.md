@@ -6,7 +6,9 @@
  i have major depression , sometimes i take it out on other people, i'am extremely sensitive aswell so bare with me, i don't know 
  if you're joking or not, so let me know if you are, so i don't take it seriously :") . 
 
- Please use ./j or any Tone Indicators when interacting with me aswell T-T  or any of these https://en.wikipedia.org/wiki/Tone_indicator 
+ Please use /j or any Tone Indicators when interacting with me aswell T-T  or any of these https://en.wikipedia.org/wiki/Tone_indicator 
+
+ 
 
  
 
