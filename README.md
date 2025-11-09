@@ -8,6 +8,9 @@
 
  Please use /j or any Tone Indicators when interacting with me aswell T-T  or any of these https://en.wikipedia.org/wiki/Tone_indicator 
 
+
+
+also check out this amazing arcane edit .. https://www.youtube.com/watch?v=gsoDqExe8AI
  
 
  
