@@ -1,5 +1,5 @@
 
- i'am taking a break from ponytown, idk when im coming back online either . 
+ i'am taking a break from ponytown, idk when im coming back online either . (Im also dealing with gender dysphoria, and that tends to make me feel unwell, and not in the mood)
 
  for ponytown: Dniuf/don't int if you don't know me,  c+h for friends please ^,^  
 
