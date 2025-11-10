@@ -1,10 +1,11 @@
 
- i'am taking a break from ponytown, idk when im coming back online either . (Im also dealing with gender dysphoria, and that tends to make me feel unwell, and not in the mood)
+i'am back,,. atleast for now i think 
 
  for ponytown: Dniuf/don't int if you don't know me,  c+h for friends please ^,^  
 
- i have major depression , sometimes i take it out on other people, i'am extremely sensitive aswell so bare with me, i don't know 
- if you're joking or not, so let me know if you are, so i don't take it seriously :") . 
+ i have major depression , sometimes i take it out on other people, i'am extremely senlssitive aswell so bare with me, i don't know 
+ if you're joking or not, so let me know if you are, so i don't take it seriously :") . (Im also dealing with gender dysphoria, and that 
+ tends to make me feel unwell, and not in the mood)
 
  Please use /j or any Tone Indicators when interacting with me aswell T-T  or any of these https://en.wikipedia.org/wiki/Tone_indicator 
 
