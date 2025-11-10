@@ -16,6 +16,9 @@ also check out this amazing arcane edit .. https://www.youtube.com/watch?v=gsoDq
 
 (And Sunsets, you can sit with me anytime idm ^_^)
 
+
+my magma profile https://magma.com/artist/yaoithefith
+ toyhouse: https://toyhou.se/PERCY_00
  
 
 
