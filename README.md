@@ -19,7 +19,9 @@ also check out this amazing arcane edit .. https://www.youtube.com/watch?v=gsoDq
 
 my magma profile https://magma.com/artist/yaoithefith
  toyhouse: https://toyhou.se/PERCY_00
- 
+
+
+ im also gonna try and be better, and not start random drama 
 
 
 
