@@ -24,6 +24,9 @@ my magma profile https://magma.com/artist/yaoithefith
  im also gonna try and be better, and not start random drama 
 
 
+ ![911b8bd3655ba9c3357dea681ae97d6d](https://github.com/user-attachments/assets/3e5a9c41-97d1-42c8-ace8-334c30eb1a1e)
+
+
 
 
 
