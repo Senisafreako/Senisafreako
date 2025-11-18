@@ -1,5 +1,5 @@
 
-i'am back,,. atleast for now i think , i was spending the couple days with my family, im feeling alot better :D
+taking it slow, sometimes on ponytown now 
 
  for ponytown: Dniuf/don't int if you don't know me,  c+h for friends please ^,^  
 
