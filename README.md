@@ -12,6 +12,9 @@ taking it slow, sometimes on ponytown now
 
  Please use /j or any Tone Indicators when interacting with me aswell T-T  or any of these https://en.wikipedia.org/wiki/Tone_indicator 
 
+![145210a46fd25e05680dfbc7b8eaf098](https://github.com/user-attachments/assets/bd952cdb-00cb-42ed-b970-9817b9142937)
+
+
 
 
 also check out this amazing arcane edit .. https://www.youtube.com/watch?v=gsoDqExe8AI
