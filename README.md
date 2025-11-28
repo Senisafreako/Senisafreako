@@ -1,6 +1,8 @@
 <img width="100" height="736" alt="083e41b98dacfac2f83c37b9117d9f71" src="https://github.com/user-attachments/assets/6ff24072-9b93-405b-94f5-6b97b680ef58" />    
 <img width="100" height="736" alt="de160a742e92ca68a40b33559e5eb369" src="https://github.com/user-attachments/assets/e18aebf7-c993-4321-92d8-d81950ad9790" />
 
+<img width="300" height="736" alt="de160a742e92ca68a40b33559e5eb369" src="https://media1.tenor.com/m/rrooJHizb3sAAAAd/gojo-gojo-satoru.gif" />  
+
 
 taking it slow, sometimes on ponytown now 
 
@@ -12,20 +14,17 @@ taking it slow, sometimes on ponytown now
 
  Please use /j or any Tone Indicators when interacting with me aswell T-T  or any of these https://en.wikipedia.org/wiki/Tone_indicator 
 
-![145210a46fd25e05680dfbc7b8eaf098](https://github.com/user-attachments/assets/bd952cdb-00cb-42ed-b970-9817b9142937)
 
+<img width="300" height="736" alt="de160a742e92ca68a40b33559e5eb369" src="https://media1.tenor.com/m/n_E9_PBxFU8AAAAd/satoru-gojo-gojo-satoru.gif" />  
 
 
 
 also check out this amazing arcane edit .. https://www.youtube.com/watch?v=gsoDqExe8AI
 
-
 (And Sunsets, you can sit with me anytime idm ^_^)
-
 
 my magma profile https://magma.com/artist/yaoithefith
  toyhouse: https://toyhou.se/PERCY_00
-
 
  im also gonna try and be better, and not start random drama  
  
