@@ -10,7 +10,7 @@ taking it slow, sometimes on ponytown now
 <img width="99" height="736" alt="083e41b98dacfac2f83c37b9117d9f71" src="https://github.com/user-attachments/assets/6ff24072-9b93-405b-94f5-6b97b680ef58" />    
 
 
- for ponytown: Dniuf/don't int if you don't know me,  c+h for friends please ^,^  
+ for ponytown: iwc(Interact with care) majorly, c+h for friends please ^,^  
 
  i have major depression , sometimes i take it out on other people, i'am extremely sensitive aswell so bare with me, i don't know 
  if you're joking or not, so let me know if you are, so i don't take it seriously :") . (Im also dealing with gender dysphoria, and that 
