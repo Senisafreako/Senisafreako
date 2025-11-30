@@ -33,6 +33,22 @@ my magma profile https://magma.com/artist/yaoithefith
  toyhouse: https://toyhou.se/PERCY_00 
 
  im also gonna try and be better, and not start random drama  
+
+
+
+
+
+ More info about me!! (Important, please read!) ^^
+
+i DO not support nazi supporters/supporters of h*tler, i AM NOT friends with ryo and weim, i was the one who pointed out/confronted them about it(hid, and blocked them), i do not purposefully bring drama towards me, unless its serious, and i point it out if i have too, but, please DO not bring drama around me, it makes me feel unwell/stresses me out, to where i need to get up, and breathe, because i get light-headed/overwelmed, DO not bring up past drama either it makes me mad/pressed, because some of the drama that happend was stressful/horrible. I AM changing, and working on myself, and my mood around others in ponytown/online, you can interact with me if you want, and especially do not talk to me about my old friendships either, also please look out/avoid ryo and weim, they support h*tler, and they "joked" about him, and wanting him to come back aswell. i was oblivious to them, and became their friend before i SAW them "joking" about h*tler and etc, i have screenshots of ryo's nazi skin/texts in ponytown.  
+
+I am also not friends with sills, or sill's friends, nor dihlilah. 
+
+Please DO not assume something about me, its wrong, and hear me out before you jump at me with assumptions. 
+
+and i AM trying not to friend/int with problematic people, i WILL check your profile if you meet my DNI critta. 
+
+I block/hide FREELY if you make me uncomfortable/my friends uncomfortable.  
  
 
 
