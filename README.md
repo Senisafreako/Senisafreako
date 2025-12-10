@@ -1,10 +1,10 @@
-<img width="200" height="736" alt="083e41b98dacfac2f83c37b9117d9f71" src="https://magma.com/api/message/file/6938e49d6d1d6e7f2d0d5fe6" />    
+   <img width="300" height="736" alt="083e41b98dacfac2f83c37b9117d9f71" src="https://i.pinimg.com/originals/2d/9e/b3/2d9eb3a3b395db6c4796445067585587.jpg" /> 
 
 
 
 taking it slow, sometimes on ponytown now 
 
-<img width="99" height="736" alt="083e41b98dacfac2f83c37b9117d9f71" src="https://github.com/user-attachments/assets/6ff24072-9b93-405b-94f5-6b97b680ef58" />    
+<img width="200" height="736" alt="083e41b98dacfac2f83c37b9117d9f71" src="https://i.pinimg.com/736x/0b/ef/aa/0befaafb816e41f753c69f87b6c088d5.jpg" />    
 
 
  for ponytown: iwc(Interact with care) majorly, c+h for friends please ^,^  
@@ -13,13 +13,13 @@ taking it slow, sometimes on ponytown now
  if you're joking or not, so let me know if you are, so i don't take it seriously :") . (Im also dealing with gender dysphoria, and that 
  tends to make me feel unwell, and not in the mood) 
  
- <img width="100" height="736" alt="de160a742e92ca68a40b33559e5eb369" src="https://github.com/user-attachments/assets/e18aebf7-c993-4321-92d8-d81950ad9790" />
+ <img width="200" height="736" alt="de160a742e92ca68a40b33559e5eb369" src="https://media.tenor.com/hK5XWYELUqQAAAAj/ivan-till.gif" />
 
 
  Please use /j or any Tone Indicators when interacting with me aswell T-T  or any of these https://en.wikipedia.org/wiki/Tone_indicator 
 
 
-<img width="300" height="736" alt="de160a742e92ca68a40b33559e5eb369" src="https://media1.tenor.com/m/n_E9_PBxFU8AAAAd/satoru-gojo-gojo-satoru.gif" />  
+<img width="300" height="736" alt="de160a742e92ca68a40b33559e5eb369" src="https://media1.tenor.com/m/-FTUD7jMFLMAAAAC/ivantill-tillivan.gif" />  
 
 
 also check out this amazing arcane edit .. https://www.youtube.com/watch?v=gsoDqExe8AI
