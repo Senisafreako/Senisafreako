@@ -1,6 +1,3 @@
-   <img width="300" height="736" alt="083e41b98dacfac2f83c37b9117d9f71" src="https://i.pinimg.com/originals/2d/9e/b3/2d9eb3a3b395db6c4796445067585587.jpg" /> 
-
-
 
 taking it slow, sometimes on ponytown now 
 
