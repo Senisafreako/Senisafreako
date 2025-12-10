@@ -2,7 +2,7 @@
 
   
 
-<img width="300" height="736" alt="de160a742e92ca68a40b33559e5eb369" src="https://media1.tenor.com/m/rrooJHizb3sAAAAd/gojo-gojo-satoru.gif" />  
+<img width="300" height="736" alt="de160a742e92ca68a40b33559e5eb369" src="https://magma.com/api/message/file/6938e49d6d1d6e7f2d0d5fe6" />  
 
 
 taking it slow, sometimes on ponytown now 
