@@ -1,7 +1,7 @@
 
 taking it slow, sometimes on ponytown now 
 
-<img width="200" height="736" alt="083e41b98dacfac2f83c37b9117d9f71" src="https://i.pinimg.com/736x/9b/b5/18/9bb518e14fd1aa3410ab49a7e02c6863.jpg" />    
+<img width="300" height="736" alt="083e41b98dacfac2f83c37b9117d9f71" src="https://c.tenor.com/spD1-kWLqYkAAAAC/tenor.gif" />    
 
 
  for ponytown: iwc(Interact with care) majorly, c+h for friends please ^,^  
@@ -10,7 +10,7 @@ taking it slow, sometimes on ponytown now
  if you're joking or not, so let me know if you are, so i don't take it seriously :") . (Im also dealing with gender dysphoria, and that 
  tends to make me feel unwell, and not in the mood) 
  
- <img width="200" height="736" alt="de160a742e92ca68a40b33559e5eb369" src="https://i.pinimg.com/736x/be/c4/4b/bec44b59b2e500105c8698802b662c6a.jpg" />
+ <img width="300" height="736" alt="de160a742e92ca68a40b33559e5eb369" src="https://media1.tenor.com/m/uiGS32Wv4mMAAAAC/luka-luka-alien-stage.gif" />
 
 
  Please use /j or any Tone Indicators when interacting with me aswell T-T  or any of these https://en.wikipedia.org/wiki/Tone_indicator 
