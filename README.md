@@ -1,9 +1,5 @@
 <p>HAPPY NEW YEARRRR !!!!!!!!!!!! </p>
 
-<p>Also thank you @ponytowners
-</p>
-
-
 taking it slow, sometimes on ponytown now 
 
 <img width="300" height="736" alt="083e41b98dacfac2f83c37b9117d9f71" src="https://c.tenor.com/spD1-kWLqYkAAAAC/tenor.gif" />    
