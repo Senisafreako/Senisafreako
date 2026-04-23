@@ -11,3 +11,7 @@ oomfs: @phantomedjoker, @uffohsnack, @enmitye, @bratworth, @sleepyroseee, @yangi
 *also ty @ponytowners for making me cool and awesome. :D*
 
 
+
+
+ **"Your not actually hikaru, are you?"**
+
