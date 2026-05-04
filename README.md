@@ -1,5 +1,6 @@
 
 *Please visit my lovenotesfortill strawpage*
+<img width="500" height="300" alt="18fec47c1e20d8ee7a729a7f4ae0fc28" src="https://github.com/user-attachments/assets/8f5b88a7-8876-4b09-9d82-633d1b559a1f" />
 
 
 **will not be active on ponytown sometimes, im taking breaks now and then!** 
@@ -11,7 +12,7 @@ oomfs: @phantomedjoker, @uffohsnack, @enmitye, @bratworth, @sleepyroseee, @yangi
 
 *also ty @ponytowners for making me cool and awesome. :D*
 
-<img width="500" height="300" alt="187b920bf0429230c6ffc31e3e62bb22" src="https://github.com/user-attachments/assets/f34af226-e7db-4914-b20a-a117bdb0502d" />
+<img width="500" height="300" alt="Screenshot 2026-05-04 043217" src="https://github.com/user-attachments/assets/b304ea1a-5282-4af0-a6fb-69d5ac0006b3" />
 
 
 
