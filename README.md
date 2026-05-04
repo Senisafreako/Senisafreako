@@ -13,5 +13,5 @@ oomfs: @phantomedjoker, @uffohsnack, @enmitye, @bratworth, @sleepyroseee, @yangi
 
 
 
- **"Your not actually hikaru, are you?"**
+ **Yaoi yaoi yaoi yaoi yuri yuri yuri yaoi yaoi**
 
