@@ -15,10 +15,4 @@ oomfs: @phantomedjoker, @uffohsnack, @enmitye, @bratworth, @sleepyroseee, @yangi
 <img width="500" height="300" alt="Screenshot 2026-05-04 043217" src="https://github.com/user-attachments/assets/b304ea1a-5282-4af0-a6fb-69d5ac0006b3" />
 
 
-
- **Yaoi yaoi yaoi yaoi yuri yuri yuri yaoi yaoi**
-
-
 <p>I will not check strawpage or atabook often.</p> 
-
-**dni if you support any sukuna delulu <3**
