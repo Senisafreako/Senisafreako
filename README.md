@@ -15,3 +15,7 @@ oomfs: @phantomedjoker, @uffohsnack, @enmitye, @bratworth, @sleepyroseee, @yangi
 
  **Yaoi yaoi yaoi yaoi yuri yuri yuri yaoi yaoi**
 
+
+<p>I will not check strawpage or atabook often.</p> 
+
+**dni if you support any sukuna delulu <3**
