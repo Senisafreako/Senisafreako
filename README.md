@@ -16,4 +16,8 @@ oomfs: @phantomedjoker, @uffohsnack, @enmitye, @bratworth, @sleepyroseee, @yangi
 <img width="500" height="300" alt="Screenshot 2026-05-04 043217" src="https://github.com/user-attachments/assets/b304ea1a-5282-4af0-a6fb-69d5ac0006b3" />
 
 
-<p>I will not check strawpage or atabook often.</p> 
+<p>I will not check strawpage or atabook often.</p>  
+
+<p>im crying over his official art </p> 
+<img width="300" height="560" alt="694f06e9f9b9fc113761c56482a5daa3" src="https://i.pinimg.com/736x/c3/d2/8c/c3d28c1c5513c9ca86723796432987a1.jpg" />
+
